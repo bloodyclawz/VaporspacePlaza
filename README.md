@@ -10,7 +10,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
   <p align="center"> 〘 ♯ Collective Identities ♭ 〙
- <p align="center"> . Genderfluid, Trans FTM, Femboy, Androflexible, Hypersexual .
+ <p align="center"> . Genderfluid, Trans FTM, Femboy, MLM, Hypersexual . Poly .
 
 <p align="center">  ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
