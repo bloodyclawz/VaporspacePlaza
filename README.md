@@ -1,6 +1,6 @@
 <p align="center">   〘 ♬ Vaporspace Intro ! ♬ 〙
   
- <p align="center"> . Hi! We're the Vaporspace Plaza, an 18+ OSDD{-1B} sys with bad memory and collective memory ! .
+ <p align="center"> . Hi! We're the Vaporspace Plaza, an 18+ , Fictive Heavy + Polyfrag { ? } OSDD{-1B} sys with bad memory and collective memory ! Current Headcount; 1632 .
 
   <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
   
